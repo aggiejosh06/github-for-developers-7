@@ -9,3 +9,5 @@
 **Hobby:** Video games
 
 **Favorite color:** green
+
+**Where I'm currently located:** College Station, TX
